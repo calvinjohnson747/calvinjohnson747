@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **calvinjohnson747@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1v5rOp7VavrYtwoV5ajoimRdGEsaoq2fe/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1yj0ds1tlrjBG7r4SqYujwPaiZ5TMoeKF/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
