@@ -5,7 +5,7 @@
 
 - 👯 I’m looking to collaborate on **Full Stack Development**
 
-- 👨‍💻 All of my projects are available at [https://github.com/dashboard](https://github.com/dashboard)
+- 👨‍💻 All of my projects are available at [https://github.com/calvinjohnson747](https://github.com/calvinjohnson747)
 
 - 💬 Ask me about **Cloud Computing**
 
